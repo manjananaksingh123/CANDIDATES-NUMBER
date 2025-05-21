@@ -1,1 +1,3 @@
 # CANDIDATES-NUMBER
+NANAK SINGH 
+jawar singh 
